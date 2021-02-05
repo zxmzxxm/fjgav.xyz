@@ -13,9 +13,5 @@
 ##### :heart: :point_right:  ：https://fjg010.xyz
 
 
-##### :heart: :point_right: 【邮箱联系方式】 ：zxmzxxm@gmail.com
 
 #### :sunglasses:重要提醒:sunglasses:请务必收藏本页面，避免迷路！
-
-
-:e-mail: __邮箱联系方式: zxmzxxm@gmail.com （以上地址无法访问请发送任意内容获取最新地址）__
